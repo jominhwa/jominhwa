@@ -1,4 +1,4 @@
-<a href="https://vladek.notion.site/vladek/b5d236988bff498b9a227aa867872dee?v=758022a0c38841148c8830414c0d8d65"><img src="https://img.shields.io/badge/Blog-000000?style=flat-square&logo=notion&logoColor=white"/></a> <a href="mailto:minhwa1224@naver.com"><img src="https://img.shields.io/badge/Email-000000?style=flat-square&logo=gmail&logoColor=white"/></a> <a href="https://open.kakao.com/o/s0t8NT3f"><img src="https://img.shields.io/badge/KakaoTalk-000000?style=flat-square&logo=kakaotalk&logoColor=white"/></a>
+<a href="https://vladek.notion.site/vladek/b5d236988bff498b9a227aa867872dee?v=758022a0c38841148c8830414c0d8d65"><img src="https://img.shields.io/badge/Blog-000000?style=flat-square&logo=notion&logoColor=white"/></a> <a href="https://open.kakao.com/o/s0t8NT3f"><img src="https://img.shields.io/badge/KakaoTalk-000000?style=flat-square&logo=kakaotalk&logoColor=white"/></a> <a href="mailto:minhwa1224@naver.com"><img src="https://img.shields.io/badge/Email-000000?style=flat-square&logo=gmail&logoColor=white"/></a>
 
 𝐇𝐞𝐥𝐥𝐨, 𝐈'𝐦 𝐦𝐢𝐧𝐡𝐰𝐚🤍  
 𝐌𝐲 𝐠𝐨𝐚𝐥 𝐢𝐧 𝐰𝐞𝐛 𝐝𝐞𝐯𝐞𝐥𝐨𝐩𝐦𝐞𝐧𝐭 𝐢𝐬 𝐭𝐨 𝐜𝐫𝐞𝐚𝐭𝐞 𝐚𝐧 𝐞𝐱𝐩𝐞𝐫𝐢𝐞𝐧𝐜𝐞 𝐟𝐨𝐫 𝐮𝐬𝐞𝐫𝐬 𝐭𝐡𝐚𝐭 𝐭𝐡𝐞𝐲 𝐰𝐨𝐧'𝐭 𝐫𝐞𝐠𝐫𝐞𝐭.
